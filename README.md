@@ -16,7 +16,7 @@
 Hi,I'm Sai Lanka🙌, a Software Engineer, Cybersecurity Engineer, and Cloud Solutions Engineer. Apart from that I enjoy frequenting Hackathons and other Competitions.❤✌
 
 
-<img align="right" alt="GIF" src="https://tenor.com/rS6YsljvEpD.gif" />
+<img align="right" alt="GIF" src="https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExaTRyam1lcWd1NzVsOGZhNjBqemc5MTcxbnNqaHBrYjZ6eG5iZjRybCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/A06UFEx8jxEwU/giphy.gif" />
 
 
 **Talking about Personal Stuffs:**
